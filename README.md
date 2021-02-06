@@ -1,0 +1,2 @@
+# Ilkhomjon
+mayoq.uz
